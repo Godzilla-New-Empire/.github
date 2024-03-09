@@ -6,7 +6,7 @@ Godzilla x Kong: The New Empire Streamcloud Deutsch Ganzer Film, Godzilla x Kong
 
 <a href="https://victormovies.org/de/movie/823464/godzilla-x-kong-the-new-empire">📺 Jetzt Download |✼✮☛ Godzilla x Kong: The New Empire ONLINE KOSTENLOS</a>
 
-[![BJ11](https://github.com/movieanywheree/movieanywhere/assets/159463524/ce4e67da-ae7d-4400-891a-cdf49f46da01)](https://t.co/V9nThgblzp)
+[![BJ11](https://github.com/movieanywheree/movieanywhere/assets/159463524/ce4e67da-ae7d-4400-891a-cdf49f46da01)]([https://t.co/V9nThgblzp](https://victormovies.org))
 
 OVERVIEW : Nach ihrem explosiven Showdown müssen sich Godzilla und Kong erneut gegen eine kolossale, unentdeckte Bedrohung vereinen, die in unserer Welt verborgen ist und ihre Existenz – und unsere eigene – in Frage stellt.
 
